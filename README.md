@@ -1,0 +1,2 @@
+# future.rip
+mandala shalala
